@@ -12,4 +12,4 @@ almeida.santos16@escola.pr.gov.br
 
 @cordeiro_felip3
 
-![descrição do GIF](link GIF do Tenor)
+🥇🧏 🌯
